@@ -1,7 +1,7 @@
 # O Que Você Precisa para Jogar
 ## Início Rápido
 -  Uma warband de 6 à 10 miniaturas para levar ao combate.
-- Um campo de batalha de aproximadamente 3' por 3' (90 x 90 cm) ou 4' por 4' (120 x 120 cm), ou qualquer outra superfície com 24" (60 cm) em cada lado.
+- Um campo de batalha de aproximadamente 3' por 3' (90 x 90 cm) ou 4' por 4' (120 x 120 cm), ou qualquer outra superfície com ao menos 24" (60 cm) de espaço entre as forças.
 - Terreno (e um monte destes).
 - Três conjuntos de dados de seis lados em diferentes cores.
 - Uma fita para medição com polegadas imperiais.
