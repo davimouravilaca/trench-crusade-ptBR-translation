@@ -12,3 +12,4 @@ Logo após, você encontrará as regras. Estas são divididas entre duas seçõe
 Depois das **Regras Básicas**, você irá encontrar a seção sobre como conectar batalhas individuais à uma Campanha. As **Regras de Campanha** são o coração pulsante de Trench Crusade. Elas permitem que você crie suas próprias histórias, levando sua warband de modestos começos para um status lendário na Grande Guerra, onde seus feitos são contados em tom de sussurros em bunkers e  casamatas na Terra de Ninguém. Você perderá guerreiros e ganhará novos recrutas ao longo do caminho. Outros sofrerão ferimentos atrozes, mas alguns sobreviverão para aprender habilidades letais ou adquirir poderosos equipamentos.
 
 As regras são seguidas por uma variedade de terríveis Cenários para você jogar, desde audazes incursões em trincheiras  à batalhas sobre trens blindados.
+
