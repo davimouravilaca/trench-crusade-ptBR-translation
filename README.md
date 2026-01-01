@@ -2,3 +2,4 @@
 
 Unnoficial translation of the Trench Crusade Books for the pt-BR (Brazilian Portuguese) language.
 
+Esta tradução tem por objetivo manter a máxima fidelidade possível ao texto original em Inglês, optando por preservar os arcaísmos característicos da obra e adaptar expressões específicas, como termos religiosos e militares, apenas quando estritamente necessário (quando a tradução direta impossibilitaria a compreensão), com o intuito de transmitir aos leitores falante das línguas lusitanas a experiência mais íntegra possível de Trench Crusade em seu idioma nativo. 
