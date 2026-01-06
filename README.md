@@ -6,4 +6,4 @@ Esta tradução tem por objetivo manter a máxima integridade possível ao texto
 
 Progresso total:
 
-Rulebook:█░░░░░░░░░░░░░░░░░░░ 5% 10/196
+Rulebook:██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6% 11/196

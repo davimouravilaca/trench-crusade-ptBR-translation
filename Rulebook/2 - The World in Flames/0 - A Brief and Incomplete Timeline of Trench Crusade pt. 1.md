@@ -14,4 +14,4 @@
 - **1346-** 
 - **1353:** Beelzebub libera o Graal Negro. Dezenas de milhões são infectados, sendo transformados em receptáculos metastáticos na pior praga que a humanidade já conheceu. A Guerra dos Cadáveres começou.
 - **1429:** A Santa Viva Joana d'Arc aparta o Graal Negro do continente europeu.
-- **1477:** A Cidade de Argos é tomada por Deus, e não mais é.
+- **1477:** A Cidade de Argos é tomada por Deus, e não mais existe.
