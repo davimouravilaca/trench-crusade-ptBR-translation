@@ -1,0 +1,8 @@
+### Isto é Trench Crusade
+Durante a Primeira Crusada, os exércitos da Igreja capturaram a Cidade Santa. Por baixo do mais sagrado dos templos, os Cavaleiros Templários descobriram galerias ocultas. No interior de suas profundezas lúgubres, jaz um artefato demoníaco. Tomados pela ganância e a fraqueza em seus corações, os Templários caíram de joelhos. Eles haviam encontrado um novo senhor.
+
+Testemunhando a sabedoria profana revelada pelo artefato, eles se viraram para a escuridão, traficando com demônios e cometendo toda espécie de ritos indescritíveis. Esta fora a Suma Heresia. Jerusalém foi reduzida a um poço de depravação por onde o Infernal esgueirou-se ao nosso Reino terreno, o Inferno e o nosso plano mortal estão agora entrelaçados em corrupção.
+
+Por oito séculos a Igreja tem proclamado sua cruzada para retomar a Cidade Santa. A paisagem foi devastada por inteiro, delimitada por milhares de milhas de trincheiras, lama e crateras. A guerra agora é travada por exércitos empunhando armas hediondas. Ambos os lados comandam seres sobrenaturais de poder tão imenso que são praticamente imparáveis. Mesmo com tão incalculável poder os exércitos se encontram em um impasse.
+
+[[Index]]
