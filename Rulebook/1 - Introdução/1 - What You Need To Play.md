@@ -9,3 +9,5 @@
 - Amigos. Ninguém luta a Grande Guerra sozinho.
 
 Neste documento você irá se deparar com uma seta vermelha ▶  ou uma seta preta  ▶. Estas setas indicam que existem mais informações disponíveis. A seta vermelha indica que este é um hyperlink ativo, você pode clicar nele para se levado ao conteúdo relacionado. Uma seta preta indica que que o texto apontado está em um outro documento, o nome do documento será exibido próximo à seta preta.
+
+[[Index]]

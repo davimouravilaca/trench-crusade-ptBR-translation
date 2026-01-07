@@ -15,3 +15,5 @@
 - **1353:** Beelzebub libera o Graal Negro. Dezenas de milhões são infectados, sendo transformados em receptáculos metastáticos na pior praga que a humanidade já conheceu. A Guerra dos Cadáveres começou.
 - **1429:** A Santa Viva Joana d'Arc aparta o Graal Negro do continente europeu.
 - **1477:** A Cidade de Argos é tomada por Deus, e não mais existe.
+
+[Próximo](Tradução/trench-crusade-ptBR-translation/Rulebook/2%20-%20The%20World%20in%20Flames/0.1%20-%20A%20Brief%20and%20Incomplete%20Timeline%20of%20Trench%20Crusade%20pt.2.md)
