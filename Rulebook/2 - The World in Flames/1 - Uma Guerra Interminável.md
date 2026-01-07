@@ -15,7 +15,7 @@ Os mortais adoradores de demônios e Hereges são reforçados pelos exércitos d
 
 Entre os lados beligerantes destaca-se em A Terra de Ninguém: Intermináveis obras de trincheiras, casamatas e bunkers, vilarejos arruinados, vilas e cidades, esburacadas por artilharias devastadoras, criam uma paisagem de terror, assombrada pelos fantasmas dos caídos. Templos estilhaçados, sinagogas, mosteiros, igrejas, basílicas e catedrais permanecem para testemunhar solenemente uma batalha  que é tão espiritual quanto é física.
 
-Os perigos ao mar são não menos graves, onde os navios Hereges dominaram suas contrapartes Fiéis. Manter rotas comerciais essenciais exige cada gota da força dos almirantes e capitães encarregados da tarefa quase-impossível de contestar os poderosos beemotes e submarinos dos Hereges. Apenas no Mediterrâneo os Fiéis e os Hereges apresentam-se quase igualados, fechados em um tênue balanço de poder.   
+Os perigos ao mar são não menos graves, onde os navios Hereges dominaram suas contrapartes Fiéis. Manter rotas comerciais vitais exige cada gota do esforço dos almirantes e capitães encarregados da tarefa quase-impossível de contestar os poderosos beemotes e submarinos dos Hereges. Apenas no Mediterrâneo os Fiéis e os Hereges apresentam-se quase igualados, fechados em um tênue balanço de poder.   
 
 Nenhum lugar no mundo está verdadeiramente a salvo das garras do Inferno, que se estendem cada vez mais para fora para agarrar seu cobiçado prêmio, o absoluto domínio sobre a Criação.
 

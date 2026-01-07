@@ -13,3 +13,4 @@ Depois das **Regras Básicas**, você irá encontrar a seção sobre como conect
 
 As regras são seguidas por uma variedade de terríveis Cenários para você jogar, desde audazes incursões em trincheiras  à batalhas sobre trens blindados.
 
+[[Index]]
