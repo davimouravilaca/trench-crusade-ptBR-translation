@@ -10,7 +10,7 @@ Esta tradução tem por objetivo preservar a máxima integridade possível ao te
 ### Progresso atual:
 
 Rulebook (Livro de Regras) 📚:  
-▰▰▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱ 6% 12/196
+▰▰▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱▱ 7% 13/196
 
 ### Como usar esta tradução?
 
