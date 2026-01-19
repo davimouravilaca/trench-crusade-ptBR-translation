@@ -18,7 +18,7 @@ O modelo Ativado pode tomar as seguintes **AÇÕES** uma de cada, em qualquer or
 **Lutar** #Lutar: Você pode realizar um Ataque corpo-à-corpo  com o seu modelo caso ele esteja à 1" de um inimigo e este tenha uma Arma corpo-a-corpo (▶ ver  #Ataques-corpo-a-corpo).
 **Outras**: Alguns modelos possuem outras **AÇÕES** que eles podem tomar durante suas Ativações (▶veja Começando uma Warband em Warbands de Trench Crusade)
 
-
+[[5.0 a - Testes de Sucesso]]
  
 
 
