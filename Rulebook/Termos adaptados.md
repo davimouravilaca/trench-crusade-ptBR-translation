@@ -1,0 +1,1 @@
+- **Tough -> Bruto**: A palavra-chave **TOUGH** foi adaptada para **BRUTO** por conta das qualidade de: duro, firme, rijo e inflexível do adjetivo original em inglês.
